@@ -2,7 +2,7 @@
 
 # Hi, I'm Ram 
 
-### B.Tech ECE Student | Aspiring VLSI Engineer
+### B.Tech ECE Student at aditya university | Aspiring VLSI Engineer
 
  Electronics and Communication Engineering Student
 
